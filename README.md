@@ -22,3 +22,5 @@ Voeg de zalm toe en bak rondom aan, steek met een spatel in stukken. Voeg dan in
 Halveer de tomaatjes en meng deze met de zalm en spinazie. Verwarm een paar minuten door en voeg dan de tagliatelle toe. Mix alles door elkaar en schep op borden. Bestrooi met geroosterde pijnboompitten.
 
 https://www.leukerecepten.nl/recepten/pasta-met-zalm-en-spinazie/
+
+![](pasta-met-zalm-1.jpg)
